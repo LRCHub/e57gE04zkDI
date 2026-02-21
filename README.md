@@ -1,4 +1,4 @@
-# Orangestar – Surges
+# Orangestar (feat. 夏背 & ルワン) – Surges
 
 > **歌詞登録ステータス：同期歌詞あり**
 
